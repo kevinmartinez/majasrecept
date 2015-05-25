@@ -7,7 +7,7 @@ och en hel del kryddor!
 
 
 
-2015.
+copyright pixelkojan äger allt. 2015.
 
 <3
 <3
